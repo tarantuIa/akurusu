@@ -6,6 +6,8 @@
 <p align="center"> ❕ dni below 13 and over 18 w the exceptions of friends
 
 <p align="center"> c+h unless im already accompanied ♦︎
+  
+<p align="center"><img src="https://imgur.com/dMmEtEc.png&=150" width="150">
+    
 <p align="center"><img src="https://imgur.com/uW2CghF.png&=60" width="400">
 
-<p align="center"><img src="https://imgur.com/iZVB8z9.png&=150" width="150">
