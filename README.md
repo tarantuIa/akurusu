@@ -7,3 +7,5 @@
 
 <p align="center"> c+h unless im already accompanied ♦︎
 <p align="center"><img src="https://imgur.com/uW2CghF.png&=60" width="400">
+
+<p align="center"><img src="https://imgur.com/iZVB8z9.png&=150" width="150">
